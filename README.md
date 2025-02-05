@@ -1,10 +1,11 @@
 
-![157955e0-dcae-4daa-8a8a-931409a2b7db](https://github.com/user-attachments/assets/2372c3ee-f3ac-4b46-83a0-c76b05b805fc)
+
+![GiPL7wCb0AA4Kn7](https://github.com/user-attachments/assets/2a9d3f8c-7085-4ac2-af85-0696f6e210e7)
 
 
 
 
-                             basic dni criteria thats all 
+                                              basic dni criteria thats all 
 
 
 
