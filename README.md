@@ -6,7 +6,7 @@
 
 
 
-                                              basic dni criteria thats all 
+                                              uhhh ily vro 
 
 
 
