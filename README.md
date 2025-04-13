@@ -3,7 +3,7 @@
 
 
 
-![sa](https://github.com/user-attachments/assets/d0d75930-5721-437e-acb9-efcc0286d584) ![7ae06d27bd79368977742342e45db0bf](https://github.com/user-attachments/assets/ab267b4f-0e4f-4b78-bd38-171c905b6af4)![Shadow_milk_gacha_sequence_1_animation_sm](https://github.com/user-attachments/assets/4f93b436-b5ea-43f0-ac77-ec4b3da842eb)
+![sa](https://github.com/user-attachments/assets/d0d75930-5721-437e-acb9-efcc0286d584) ![7ae06d27bd79368977742342e45db0bf](https://github.com/user-attachments/assets/ab267b4f-0e4f-4b78-bd38-171c905b6af4)![Shadow_milk_gacha_sequence_1_animation_sm](https://github.com/user-attachments/assets/4f93b436-b5ea-43f0-ac77-ec4b3da842eb) - ʀᴇᴀᴅ ꜱᴛʀᴀᴡ ʙᴇꜰᴏʀᴇ ʏᴏᴜ ɪɴᴛ.
 
 
 
