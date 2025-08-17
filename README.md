@@ -1,8 +1,9 @@
 ![stuff](https://github.com/user-attachments/assets/32a7f016-184d-43bb-836a-e7b3c94f41a1)
 ...
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+                         <img width="736" height="736" alt="Untitled28_20250817233442" src="https://github.com/user-attachments/assets/fc38b230-0eac-44cc-957e-03894e6f8c11" />
 
- ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀        ㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤㅤ<img width="736" height="736" alt="Untitled26_20250713172014" src="https://github.com/user-attachments/assets/44603bd1-c8d2-4d04-b7b8-c72f3a03881d" />
+ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀        ㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤㅤ
 
 
 
