@@ -1,6 +1,6 @@
 ![stuff](https://github.com/user-attachments/assets/32a7f016-184d-43bb-836a-e7b3c94f41a1)
 ...
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <img width="250" height="250" alt="tumblr_45b4d78f931e770b7755287665e1e372_c539a45f_250" src="https://github.com/user-attachments/assets/78a96415-0b4a-4c86-93ce-a6b78d258c15" /><img width="400" height="133" alt="tumblr_2b61ac89a916b0eca9ead246d57705cd_25f3fed5_400" src="https://github.com/user-attachments/assets/4809f5f2-b246-4e15-a4d1-794d9be6416a" />
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀
@@ -9,9 +9,6 @@
 
 
 
-
-
- 
 
 
  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀        ㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤㅤ
