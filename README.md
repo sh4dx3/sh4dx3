@@ -1,5 +1,5 @@
 
-<img width="500" height="125" alt="c11y1o" src="https://github.com/user-attachments/assets/f68eca6d-764c-4a46-864f-6bacd7d4adf3" /><img width="500" height="125" alt="c11y1o" src="https://github.com/user-attachments/assets/f0fa76aa-c5a3-4690-b9a8-13e618eb0374" />
+wip
 
 
 
@@ -23,7 +23,7 @@
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
 
 
-![G5huFhqa4AAvJnX](https://github.com/user-attachments/assets/a1e813fe-3913-4886-bbef-beca4c7ccfb5)
+wip
 
 
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
@@ -31,7 +31,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀  ʀᴇᴀᴅɪɴɢ ꜱᴛʀᴀᴡ ɪꜱ ꜱᴜɢɢᴇꜱᴛᴇᴅ ʙᴇꜰᴏʀᴇ ʏᴏᴜ ɪɴᴛ.
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ <img width="1280" height="122" alt="0440313a7d08b7306c6ad6e88336d2aa3c325d26" src="https://github.com/user-attachments/assets/54ccb679-f09b-42f9-bd6e-b73985721c4c" />
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ wip
 
 
 
